@@ -7,6 +7,7 @@ I am working on the design.
 
 If you are interested join me.
 
+In progress......
 
 Talley Ouro
 Software Engineer
