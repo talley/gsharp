@@ -7,8 +7,8 @@ I am working on the design.
 
 If you are interested join me.
 
-In progress......
+Beta Mode :)
 
 Talley Ouro
-Software Engineer
+Software Architect
 Raleigh,NC
